@@ -1,4 +1,4 @@
 # helloworld
 my second try
-I am Karly, try new things out, seems like a lot f fun
+I am Karly, tring out new things, seems like a lot of fun
 I am only following the orders.
